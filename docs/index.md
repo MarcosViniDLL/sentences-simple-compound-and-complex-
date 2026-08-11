@@ -71,6 +71,8 @@ Para obter um melhor aproveitamento deste material, recomenda-se seguir a seguin
 | 📌 Chapter 3 | FANBOYS |
 | 🔗 Chapter 4 | Subordinating Conjunctions |
 | 📝 Chapter 5 | Practice Exercises |
+| 🧶 Chapter 6 | Aula do Dia 10/08 |
+| 🎧 Chapter 7 | Vocabulary, Sentence Building & Listening |
 | ✅ Answer Key | Gabarito Comentado |
 
 ---
