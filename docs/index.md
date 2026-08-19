@@ -74,6 +74,7 @@ Para obter um melhor aproveitamento deste material, recomenda-se seguir a seguin
 | 🧶 Chapter 6 | Aula do Dia 10/08 |
 | 🎧 Chapter 7 | Vocabulary, Sentence Building & Listening |
 | ✅ Answer Key | Gabarito Comentado |
+| 🔑 Chapter 8 | Revisão para a VA |
 
 ---
 
